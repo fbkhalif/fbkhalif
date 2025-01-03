@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hello 
 
 I'm Faduma/Fai.
 
