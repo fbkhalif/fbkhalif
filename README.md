@@ -1,6 +1,6 @@
 ## Hello 
 
-I'm Faduma/Fai.
+I'm Fai.
 
 prev @ MIT, MGH, IBM Quest for Intelligence, HHMI Janelia..... Very into: 
 science realizing fantasy🧝🏿‍♀️, Safe AI, math 🎲, HCI 🎮, biohacking
