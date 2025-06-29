@@ -7,4 +7,3 @@ science realizing fantasy🧝🏿‍♀️, Safe AI, math 🎲, HCI 🎮, biohac
 
 You can view my resume [here](https://docs.google.com/document/d/1bR2ZlwgKbv65EAnR8BkOeaKxeIFJJZHW-O5kRUPGcc0/edit).
 
-![Screenshot 2025-01-14 112353](https://github.com/fbkhalif/fbkhalif/blob/main/final_matcha.png?raw=true)
