@@ -7,3 +7,4 @@ science realizing fantasy🧝🏿‍♀️, Safe AI, math 🎲, HCI 🎮, biohac
 
 You can view my resume [here](https://docs.google.com/document/d/1bR2ZlwgKbv65EAnR8BkOeaKxeIFJJZHW-O5kRUPGcc0/edit).
 
+![til](mushroom-cute.gif)
